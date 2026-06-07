@@ -101,7 +101,7 @@ Add screenshots of:
 
 🏫 Malla Reddy University, Hyderabad
 
-📄 Resume: [Add Resume Link Here]
+📄 Resume: [[View Here](https://drive.google.com/file/d/1N4io0eyi19trTwZA7FUtMugqT_Boy3eW/view?usp=sharing)]
 
 ---
 
